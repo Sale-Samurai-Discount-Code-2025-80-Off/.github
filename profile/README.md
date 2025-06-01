@@ -1,10 +1,10 @@
-## Sale Samurai Discount Code: May 2025 20% Off Coupon (Legit)
+## Sale Samurai Discount Code: June 2025 20% Off Coupon (Legit)
 
-If you’re serious about growing your Etsy shop (and honestly, who isn’t?), Sale Samurai might just be the tool you’ve been looking for. It helps with keyword optimization and gets your listings seen by more buyers. And the best part? You can now grab an exclusive 20% discount this May with our *sale samurai discount code* **[BYB20](https://salesamurai.io/339.html)**. Just apply it at checkout and, well, watch your Etsy sales journey level up.
+If you’re serious about growing your Etsy shop (and honestly, who isn’t?), Sale Samurai might just be the tool you’ve been looking for. It helps with keyword optimization and gets your listings seen by more buyers. And the best part? You can now grab an exclusive 20% discount this June with our *sale samurai discount code* **[BYB20](https://salesamurai.io/339.html)**. Just apply it at checkout and, well, watch your Etsy sales journey level up.
 
 ---
 
-## Sale Samurai Discount Code Latest May 2025:
+## Sale Samurai Discount Code Latest June 2025:
 
 [![Sale Samurai Discount Code](https://buddyforhelp.com/wp-content/uploads/2025/05/sale-samurai-discount-code.png)](https://salesamurai.io/339.html)
 
